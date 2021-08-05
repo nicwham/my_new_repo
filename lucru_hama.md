@@ -1,1 +1,0 @@
-lucru in ramura hama
